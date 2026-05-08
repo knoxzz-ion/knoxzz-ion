@@ -7,6 +7,7 @@ If I think of something, there is a high-chance ive over engineered and made it
 The main programs I use are: Visual Studio Code, OBS, SketchUp, FreeCAD, Python IDE, and tinkerCAD.
 
 ✅ I will accept: DMs (Formal only), New friends, and international friends.
+
 ❌ I won't accept: informal DMs, Pedos, any form of payment, harassment, and stolen content 
 
 ## experience:
