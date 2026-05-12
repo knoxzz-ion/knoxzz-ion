@@ -1,6 +1,6 @@
 ## Hi 
 
-I'm Nuclear Knoxzz, I am a high schooler, nuclear engineer, and a code dev based in the USA.
+I'm Knoxzz, I am a high schooler, nuclear engineer, and a code dev based in the USA.
 
 If I think of something, there is a high-chance ive over engineered and made it
 
